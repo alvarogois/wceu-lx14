@@ -37,7 +37,7 @@ As salas (1 e 2 ) encontram-se equipadas com projecção. Quanto ao som deverá 
 
 ---
 
-### [Culturgest (http://www.culturgest.pt/info/servicos.html)
+### [Culturgest] (http://www.culturgest.pt/info/servicos.html)
 * Grande auditório: 612 lugares
 * Pequeno auditório: 145 lugares
 
@@ -45,7 +45,7 @@ Enviei pedido via formulário online em 2014.02.26
 
 ---
 
-### [CCB (http://www.ccb.pt/sites/ccb/pt-PT/CentrodeReunioes/ListaSalas/Pages/GrandeAudit%C3%B3rio.aspx)
+### [CCB] (http://www.ccb.pt/sites/ccb/pt-PT/CentrodeReunioes/ListaSalas/Pages/GrandeAudit%C3%B3rio.aspx)
 * Grande auditório = 930 lugares (só na plateia, com outros vai para 1400).
 * Pequeno auditório = 292 lugares.
 
@@ -53,7 +53,7 @@ Enviei pedido por email em 2014.02.26
 
 ---
 
-### [Gulbenkian (http://www.gulbenkian.pt/Institucional/pt/Footer?a=344)
+### [Gulbenkian] (http://www.gulbenkian.pt/Institucional/pt/Footer?a=344)
 * Grande auditório = 1228
 * Auditório 2 = 334
 * Auditório 3 = 134
