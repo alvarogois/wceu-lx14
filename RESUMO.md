@@ -25,7 +25,8 @@ O Cinema São Jorge Tem três salas duas de cinema e uma multiusos.
 * sala 3, é exclusivamente utilizada como sala de Cinema, tem 199 lugares mais 4 de mobilidade reduzida.
 
 Estão **pré-reservadas as datas de 10 a 14 de Julho, que têm de ser confirmadas até final de Março.**
-**Falta** fazer contacto com o concessionário do bar para definir o catering.
+
+**Enviei email** para o [concessionário do bar](http://www.hugemeal.com) para definir o catering. Devia ter perguntado se ele aceita uma permuta ;)
 
 Valor do aluguer da sala 1 – 1.800€ + Iva / dia – acrescem os custos logísticos externos ao cinema, que variam consoante as necessidades.
 
