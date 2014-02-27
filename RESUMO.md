@@ -24,7 +24,7 @@ O Cinema São Jorge Tem três salas duas de cinema e uma multiusos.
 * sala Montepio – Café Concerto – tem 150 lugares sentados e 250 em pé.
 * sala 3, é exclusivamente utilizada como sala de Cinema, tem 199 lugares mais 4 de mobilidade reduzida.
 
-Estão **pré-reservadas as datas de 10 a 14 de Julho, que têm de ser confirmadas até final de Março.**
+Estão **pré-reservadas as datas de 10 a 14 de Julho**, que têm de ser confirmadas **até final de Março.**
 
 **Enviei email** para o [concessionário do bar](http://www.hugemeal.com) para definir o catering. Devia ter perguntado se ele aceita uma permuta ;)
 
@@ -43,6 +43,12 @@ As salas (1 e 2 ) encontram-se equipadas com projecção. Quanto ao som deverá 
 * Pequeno auditório: 145 lugares
 
 Enviei pedido via formulário online em 2014.02.26
+
+Resposta em 2014.02.27: Só está disponível no mesmo fim-de-semana do São Jorge, **12 e 13 de Julho**.
+
+O valor de aluguer diário do Grande Auditório, aos fins de semana, é de **6.400€+IVA.** 
+
+Pedi valores para as duas salas mas só me responderam com este. O catering é negociado com a empresa que trabalha com eles.
 
 ---
 
