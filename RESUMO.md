@@ -79,3 +79,18 @@ O catering tem de ser fornecido por eles.
 * Sala congressos = 120
 
 Enviei pedido por email em 2014.02.26 para: gabpres@gulbenkian.pt (Gabinete do Presidente) VAI DEMORAR…
+
+---
+
+### [Fac. Medicina Dentária] (http://www.fmd.ulisboa.pt...portal&_schema=PORTAL)
+* Auditório Prof. Dr. António Simões dos Santos = 700
+
+Contacto:
+José Manuel Fernandes
+Telefone: 217 922 625
+fax: 217 957 905 :)
+e-mail: auditorio@fmd.ul.pt
+
+Enviei pedido por email em 2014.02.28
+
+**Seria necessário ter uma outra sala, não sei se existe na FMD ou teria de ser noutro espaço, p.e., no ISCTE?**
