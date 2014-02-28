@@ -58,6 +58,18 @@ Pedi valores para as duas salas mas só me responderam com este. O catering é n
 
 Enviei pedido por email em 2014.02.26
 
+Resposta em 2014.02.28 (Catarina Martins)
+
+Única data **eventualmente** disponível é a de 20 e 21 de Setembro.
+
+* Grande auditório = 5000,00 € + IVA por dia
+* Sala Almada Negreiros (250 lugares) = 1400,00 € + IVA por dia
+* Acresce 2500,00 € + IVA na véspera para montagens
+
+O catering tem de ser fornecido por eles.
+* Coffee-breaks = 3€ por pessoa por CB
+* Almoços = a confirmar valores
+
 ---
 
 ### [Gulbenkian] (http://www.gulbenkian.pt/Institucional/pt/Footer?a=344)
