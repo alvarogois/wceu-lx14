@@ -93,4 +93,8 @@ e-mail: auditorio@fmd.ul.pt
 
 Enviei pedido por email em 2014.02.28
 
-**Seria necessário ter uma outra sala, não sei se existe na FMD ou teria de ser noutro espaço, p.e., no ISCTE?**
+Resposta em 2014.03.04: Apenas os dias 5+6 Julho estão reservados, todas as outras datas estão disponíveis.
+
+Custo diário do auditório: 1950,00 EUR + IVA. Mais pormenores no [PDF](/assets/Efeito_Avestruz_2014.pdf)
+
+Na FMD não existe uma segunda sala de apoio que possa ser usada para a track paralela. Existem salas de aula que pdoem ser alugadas, vou perguntar pela lotação, pode ser  que haja alguma que possa ser usada. **Eventualmente teria de ser noutro espaço, p.e., no ISCTE?**
