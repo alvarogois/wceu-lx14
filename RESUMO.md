@@ -26,8 +26,6 @@ O Cinema São Jorge Tem três salas duas de cinema e uma multiusos.
 
 Estão **pré-reservadas as datas de 10 a 14 de Julho**, que têm de ser confirmadas **até final de Março.**
 
-**Enviei email** para o [concessionário do bar](http://www.hugemeal.com) para definir o catering. Devia ter perguntado se ele aceita uma permuta ;)
-
 Valor do aluguer da sala 1 – 1.800€ + Iva / dia – acrescem os custos logísticos externos ao cinema, que variam consoante as necessidades.
 
 Valor do aluguer da sala 2 ou sala 3 – 1.000€ + IVA / dia – acrescem os custos logísticos externos ao cinema, que variam consoante as necessidades.
@@ -35,6 +33,10 @@ Valor do aluguer da sala 2 ou sala 3 – 1.000€ + IVA / dia – acrescem os cu
 O café do cinema encontra-se concessionado, devendo o contacto para solicitação de orçamentos ser realizado directamente com o próprio.
 
 As salas (1 e 2 ) encontram-se equipadas com projecção. Quanto ao som deverá ser posteriormente realizada uma visita técnica, para que seja confirmado se o sistema de som, na sala 1, é o suficiente.
+
+**Enviei email** para o [concessionário do bar](http://www.hugemeal.com) para definir o catering. Devia ter perguntado se ele aceita uma permuta ;)
+
+**Valores para os [coffee-breaks](assets/Huge_Meal-WCEULX14-breaks.pdf) (entre 3,50€ e 9,00€ por pessoa) e para os [almoços](assets/Huge_Meal-WCEULX14-almoco.pdf) (entre 5,50€ e 11,30€ por pessoa) estão nos pdf anexos.**
 
 ---
 
@@ -79,6 +81,8 @@ O catering tem de ser fornecido por eles.
 * Sala congressos = 120
 
 Enviei pedido por email em 2014.02.26 para: gabpres@gulbenkian.pt (Gabinete do Presidente) VAI DEMORAR…
+
+Resposta em 2014.03.06: “Lamento informar que o pedido formulado não tem possibilidade de ser considerado favoravelmente uma vez que o Grande Auditório estará afecto a iniciativas associadas à nossa Temporada de Música, e não haverá datas disponíveis para a realização do referido concerto. Acresce que por norma, a Fundação não cede as suas instalações ao fim de semana, como é o caso dos dias solicitados.”
 
 ---
 
